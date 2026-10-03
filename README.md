@@ -1,1 +1,0 @@
-# ARSINPALS.github.io
